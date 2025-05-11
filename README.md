@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Yuri (My actual name is Bruno)
+- 👀 I’m interested in: learn HScript and have an GF
+- 🌱 I’m currently learning: lua
+- 🇧🇷 I'm a Brazilian
+- 📫 How to reach me: make me silly
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Fake Baby and LTBL are the best hit single songs
